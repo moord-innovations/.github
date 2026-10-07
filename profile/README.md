@@ -18,6 +18,6 @@ Conversa direta, sem jargão, entrega em etapas e suporte de perto. Tecnologia d
 
 **Fale com a gente**
 
-📧 contato@moord.com.br · 📍 Brasil
+📧 moordinnovations@gmail.com · 📍 Brasil
 
 <sub>Where innovation meets purpose.</sub>
